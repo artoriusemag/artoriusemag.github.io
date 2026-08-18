@@ -1,1 +1,1 @@
-# artoriusgame.github.io
+google.com, pub-9559899103936945, DIRECT, f08c47fec0942fa0
